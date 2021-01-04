@@ -1,2 +1,2 @@
 # Resolusi-saya
-ini merupakan Resolusi saya du tahun  2020
+ini merupakan Resolusi saya di tahun  2020
